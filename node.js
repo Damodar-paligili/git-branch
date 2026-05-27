@@ -1,2 +1,2 @@
 this is damodar from gudur
-this is dasmodar from bangalore
+this is damodar from bangalore
